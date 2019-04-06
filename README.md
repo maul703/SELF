@@ -1,2 +1,2 @@
-line.me/ti/p/~gerhanaselatan
-SELFBOT: OLEH SADIS
+line.me/ti/p/~maul-703
+SELFBOT: maul703
